@@ -1,0 +1,2 @@
+﻿synset_id,gloss
+103898118,"(computer science) a virtual drive that is created by setting aside part of the random-access memory to use as if it were a group of sectors; ""access to a ram disk is very fast but the data it contains is lost when the system is turned off"""
