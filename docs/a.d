@@ -1,0 +1,1 @@
+- in the Christian era; used before dates after the supposed year Christ was born; "in AD 200"

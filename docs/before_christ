@@ -1,0 +1,1 @@
+- before the Christian era; used following dates before the supposed year Christ was born; "in 200 BC"

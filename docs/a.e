@@ -1,0 +1,1 @@
+- Irish writer whose pen name was A.E. (1867-1935)

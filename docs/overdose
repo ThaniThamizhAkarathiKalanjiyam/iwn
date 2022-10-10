@@ -1,0 +1,1 @@
+- dose too heavily; "The rock star overdosed and was found dead in his hotel room"

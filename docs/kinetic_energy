@@ -1,0 +1,1 @@
+- the mechanical energy that a body has by virtue of its motion

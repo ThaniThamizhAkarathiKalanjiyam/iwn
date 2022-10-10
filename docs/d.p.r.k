@@ -1,0 +1,1 @@
+- a communist country in the northern half of the Korean Peninsula; established in 1948; involved in state-sponsored terrorism

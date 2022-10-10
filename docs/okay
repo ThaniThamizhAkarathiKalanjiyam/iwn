@@ -1,0 +1,1 @@
+- an endorsement; "they gave us the O.K. to go ahead"

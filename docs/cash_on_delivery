@@ -1,0 +1,1 @@
+- collecting the charges upon delivery; "mail a package C.O.D."

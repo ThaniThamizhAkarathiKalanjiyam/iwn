@@ -1,0 +1,1 @@
+- a card or badge used to identify the bearer; "you had to show your ID in order to get in"

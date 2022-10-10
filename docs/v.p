@@ -1,0 +1,1 @@
+- an executive officer ranking immediately below a president; may serve in the president''s place under certain circumstances

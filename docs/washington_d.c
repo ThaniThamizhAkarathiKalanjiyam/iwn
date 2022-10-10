@@ -1,0 +1,1 @@
+- the capital of the United States in the District of Columbia and a tourist mecca; George Washington commissioned Charles l''Enfant to lay out the city in 1791

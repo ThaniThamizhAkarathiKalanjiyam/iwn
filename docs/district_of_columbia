@@ -1,0 +1,1 @@
+- the district occupied entirely by the city of Washington; chosen by George Washington as the site of the nation''s capital and carve out of land ceded by Maryland and Virginia

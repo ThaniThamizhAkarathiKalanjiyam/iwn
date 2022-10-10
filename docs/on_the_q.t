@@ -1,0 +1,1 @@
+- in secrecy; not openly; "met secretly to discuss the invasion plans"; "the children secretly went to the movies when they were supposed to be at the library"; "they arranged to meet in secret"
